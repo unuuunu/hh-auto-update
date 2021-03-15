@@ -1,0 +1,1 @@
+## Autoupdate resume from hh.ru
